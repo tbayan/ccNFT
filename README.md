@@ -1,2 +1,2 @@
-# ccNFT
-Crypto City NFT
+# ccNFT.com
+Crypto City NFT - Coming soon!
